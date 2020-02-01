@@ -1,0 +1,2 @@
+# FXLM-Trading-
+working notes 
